@@ -2,3 +2,5 @@ Slideshare link to PPT - https://www.slideshare.net/ShreeGowriRadhakrish/generat
 
 Medium article link - https://link.medium.com/uIBzX4fJw6
 
+zoom recording - uploaded is this directory as zoom_0.mp4
+
